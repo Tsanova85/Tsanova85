@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tsanova85
-- 👀 I’m interested in developmen
+- 👀 I’m interested in development, graphic design, management, business analisis, AI.
 - 🌱 I’m currently learning web developer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on facebook, instagram
